@@ -1,3 +1,3 @@
 # Demo
 
-Learning how to use this p in 1hr, wish me luck
+Starting to understand it, once i'm done let's collaborate
